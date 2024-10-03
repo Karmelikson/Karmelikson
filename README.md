@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Karmelikson
+- 👀 I’m interested in Minecraft Mods / Scripts
+- 🌱 I’m currently learning Java
+- 📫 How to reach me? - Join my discord! https://discord.gg/YYV9FvV9
